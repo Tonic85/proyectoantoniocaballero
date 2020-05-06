@@ -1,2 +1,0 @@
-# proyectoantoniocaballero
-Videocurriculum Interactivo
